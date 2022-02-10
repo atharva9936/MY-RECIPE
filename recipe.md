@@ -1,0 +1,1 @@
+Chole is prepared by cooking chickpeas and adding spices such as cumin, coriander seeds, turmeric powder, and chili powder. Onion, garlic, and ginger are also added for additional flavor. Bhature is prepared by combining flour, salt, and oil, and kneading the dough. The dough is rolled out into circles and deep-fried until the bhature puff up.
